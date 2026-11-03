@@ -1,6 +1,6 @@
 - 👋 Hi, I’m 颜颢坤
 - 👀 I’m interested in basketball, reading
-- 🌱 I’m currently learning physics and biology
+- 🌱 I’m currently learning physics and biology (no one cares), cs and maths
 - 💞️ I’m looking to collaborate on Musk
 - 📫 How to reach me through my mind
 - 😄 Pronouns: 😊
